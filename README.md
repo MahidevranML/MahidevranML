@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @oliciya
 - 👀 I’m interested in Art of different kind 
 - 🌱 I’m currently learning Bremen
-- 💞️ I’m looking to collaborate on Medcing science 
+- 💞️ I’m looking to collaborate on Medecing and different sciences
 - 📫 How to reach me mahidevran1505@gmail.com 
 - 😄 Pronouns: Me
 --->
