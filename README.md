@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Olgha1517
-- 👀 I’m interested in Art
+- 👋 Hi, I’m @oliciya
+- 👀 I’m interested in Art of different kind 
 - 🌱 I’m currently learning Bremen
 - 💞️ I’m looking to collaborate on Medcing science 
-- 📫 How to reach me mahidevran1505@gmail.com
+- 📫 How to reach me mahidevran1505@gmail.com 
 - 😄 Pronouns: Me
 --->
